@@ -1,1 +1,1 @@
-https://muhammedsafvanmp.github.io/my_Portfolio/personalWeb.html
+https://muhammed-nihalk.github.io/my_Portfolio/personalWeb.html
